@@ -1,4 +1,4 @@
-![Linux mint](https://github.com/ech0ware/ech0ware/blob/main/mint.jpg)
+![братан почини интернет](https://github.com/ech0ware/ech0ware/blob/main/2a73faae3902213817949adc7b6fa4b7.gifg)
 # 🐢 Добро пожаловать, я Александр
 
 ## 🧑‍💻 Мои навыки
