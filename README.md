@@ -1,4 +1,4 @@
-![Моя кошка](https://github.com/ech0ware/ech0ware/blob/main/mint.jpg)
+![Моя кошка](https://github.com/ech0ware/ech0ware/blob/main/photo_2025-07-11_16-39-31.jpg)
 # 🐢 Добро пожаловать, я Александр
 
 ## 🧑‍💻 Мои навыки
